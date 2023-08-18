@@ -1,5 +1,5 @@
 # Mugs on the blockchain
 
-Coming soon
+It's here now!
 
 Also collaborators
