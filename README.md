@@ -1,4 +1,4 @@
-# Mugs on the blockchain
+# Mugs on the Blockchain ($$$)
 
 Coming soon
 
